@@ -2,7 +2,7 @@ Katxchi'
 -----
 
 <p align = "center">
-<img src="https://media.discordapp.net/attachments/871642275548131409/881218950468366406/image3.gif">
+<img src="https://tenor.com/view/tokyo-ghoul-gif-22882608">
 </p>
 
 -----
